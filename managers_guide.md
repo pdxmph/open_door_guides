@@ -90,7 +90,7 @@ This information is important for employees to hear, because it helps them decid
 
 ### Perspective
 
-You may have a role to play in helping your employee reflect on their own behavior in the situation, or to articulate the many sides an issue may have.  When you're offering this insight, make very sure you've thoroughly acknowledged and reviewed their concern first. It can take a wlot for someone to bring a matter to you, and it can too easily be perceived that you're making excuses for someone they're having a problem with, trying to mitigate or explain away problematic behavior, or that you simply don't believe them.
+You may have a role to play in helping your employee reflect on their own behavior in the situation, or to articulate the many sides an issue may have.  When you're offering this insight, make very sure you've thoroughly acknowledged and reviewed their concern first. It can take a lot for someone to bring a matter to you, and it can too easily be perceived that you're making excuses for someone they're having a problem with, trying to mitigate or explain away problematic behavior, or that you simply don't believe them.
 
 ### An invitation to talk to someone else if needed
 
